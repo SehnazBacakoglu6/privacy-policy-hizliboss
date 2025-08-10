@@ -1,1 +1,1 @@
-# privacy-policy-hizliboss
+# HızlıBoss Uygulaması Gizlilik Politikası
